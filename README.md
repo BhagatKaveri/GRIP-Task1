@@ -4,4 +4,4 @@ i'm interested in to explore myself in data science and machine learning to lear
 
 how to contact me
 gmail :bhagatkaveri750@gmail.com
-linkedin :https://www.linkedin.com/feed
+linkedin :https://www.linkedin.com/in/kaveri-bhagat-929673226
